@@ -1,4 +1,4 @@
-# Iconograph and Music
+# Iconography and Music
 
 One of the most lovely things about religion is that the community shares icongraphy and music.  I hope that one day, if there are any followers of Aabriism, that we have some.
 
@@ -8,5 +8,4 @@ This image, if it is ever created would show a number of things:
 * Like the abri, Aabriism offers some shelter but requires you to do a bit of work to give yourself complete shelter
 * The people are discussing.  This is a key element - on of the central practices.
 * The people are using fire and drinking out of cups in the cold night - they are having fun.  They made the night a little better.
-
 
