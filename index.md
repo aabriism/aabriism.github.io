@@ -39,5 +39,5 @@ The discussions are ways of extending Aabriism, opening up questions, answering 
 * [Discussions.5.Observances](practices/index.html)
 
 ## Why?
-After years of thinking about this and then trying to live by it, myself and my sons are only adherents I know.  My sons have told their friends about it and they have requested more information.  Also, my sons have been in some challenging academic circumstances in which the power dynamic of a student-teacher relationship was opposing their desire to speak freely about religion.  I have created these pages (so far, only one page, but will hopefully grow) to assist my sons and to entertain their friends with the dottiness of a sincere old man.
+After years of thinking about this and then trying to live by it, I am the only adherents I know.  My sons toy with it in varying degrees, but I don't think they would be comfortable saying "I am an Aabriist" partly because it is just a weird thing to do - to have your own religion.  Yet they have had many discussions with their friends about concepts in these pages, and about Aabriism.  In the end, I have created these pages for myself, for my sons, and to entertain their friends with the dottiness of a sincere old man.
 
