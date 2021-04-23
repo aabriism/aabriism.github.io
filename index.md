@@ -33,7 +33,7 @@ can contribute and everyone can choose their own wisdom from among the discussio
 The discussions are ways of extending Aabriism, opening up questions, answering some, and introducing new practices.  They are not canon for the religion, but hopefully they are useful and participating in creating them is enjoyable.
 * [Discussions.1.Meaning in your Life](philosophy/meaning.html)
 * [Discussions.2.God](philosophy/god.html)
-* [Discussions.3.Religion](philosophy/religon.html)
+* [Discussions.3.Religion](philosophy/religion.html)
 * [Discussions.4.Dangers](practices/dangers.html)
 * [Discussions.5.Iconography](iconography/index.html)
 * [Discussions.6.Holidays](practices/index.html#holidays)
