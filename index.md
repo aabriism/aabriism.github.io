@@ -6,13 +6,13 @@ Aabriism (pronounced Abri - ism) is a religion for atheists created by an atheis
 The Central Belief, Central Values, and Central Practices are Central Tenets common to all forms of Aabriism. 
 
 ### Central Belief
-As an atheist who wanted to better understand belief, I asked my self "is there anything I would hope to believe even in the face of contradictory evidence?".  
-What began as an exercise in understanding faith became, to my surprise, a foundational belief.
 
   **I can make it better.**
 
-That is the central belief of Aabriism.  **I can make it better.**  It is a belief that takes a bit of work to understand.  What is *it*?  What is *better*?  What can *I do*? 
-It is applied in different ways in different circumstances.  Most importantly, it is something that I hope to be able to believe always - even in the face of contradictory evidence.  I hope that even when it appears most bleak, that I can hold this belief and find a creative way to answer these questions - find a way to make something, in some small way, better.
+That is the central belief of Aabriism.  **I can make it better.**  
+
+It is a belief that takes a bit of work to understand.  What is *it*?  What is *better*?  What can *I do*? 
+It is applied in different ways in different circumstances.  Most importantly, it is something that I hope to believe always - even in the face of contradictory evidence.  I hope that even when it appears most bleak, I can hold this belief and find a creative way to answer these questions - find a way to make something, in some small way, better.
 
 ### Central Values
 There are two central values in Aabriism, summed up in the observation: "we are Animals Attempting to Behave RatIonally".  Aabriists recognize and value these two sides to people:  
@@ -48,5 +48,8 @@ The discussions are ways of extending Aabriism, opening up questions, answering 
 * [Discussions.9.Pascal's Wager](philosophy/pascalswager.md)
 
 ## Why?
-After years of thinking about this and then trying to live by it, I am the only adherent I know.  My sons toy with it in varying degrees, but I don't think they would be comfortable saying "I am an Aabriist" partly because it is just a weird thing to do - to have your own religion.  Yet they have had many discussions with their friends about concepts in these pages, and about Aabriism.  In the end, I have created these pages for myself, for my sons, and to entertain their friends with the dottiness of a sincere old man.
+As an atheist who wanted to better understand belief, I asked my self "is there anything I would hope to believe even in the face of contradictory evidence?".  
+What began as an exercise in understanding faith became, to my surprise, a foundational belief.
+
+After years of thinking about this and then trying to live by it, I am the only adherent I know.  My sons toy with it in varying degrees, but I don't think they would be comfortable saying "I am an Aabriist" partly because it is just a weird thing to do - to have your own religion.  Yet they have had many discussions with their friends (sometimes in an academic lecture or class setting) about concepts in these pages, and about Aabriism.  In the end, I have created these pages for myself, for my sons, and to entertain their friends with the dottiness of a sincere old man.
 
