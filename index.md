@@ -2,8 +2,8 @@
 
 Aabriism (pronounced Abri - ism) is a religion for atheists created by an atheist.  As such, it has no concept of a god or gods.  It is not unique in this as there are other religions that have no need for gods.  It is not special and no-one will care if you just ignore it, but if it resonates with you, fork the repo and add discussions.  (Someday I'll figure out a model for contribution that doesn't require forking.)
 
-## Central Tenants
-The Central Belief, Central Values, and Central Practices are Central Tenants common to all forms of Aabriism. 
+## Central Tenets
+The Central Belief, Central Values, and Central Practices are Central Tenets common to all forms of Aabriism. 
 
 ### Central Belief
 As an atheist who wanted to better understand belief, I asked my self "is there anything I would hope to believe even in the face of contradictory evidence?".  
@@ -28,7 +28,7 @@ There are two central practices in Aabriism.  First: *Don't give money to anybod
   
 We've seen this too many times with religions.  Just don't do it.  If an aabriist group wishes to promote a particular project to "make something better", then they may request donations for that project, and if you are considering giving, you must decide based purely upon the merits of the project.  You should never, ever give money to somebody who claims to be a representative of Aabrism for the good of Aabriism
 
-Second:   We practice *Discussion within the Scope of the Central Tenants*. to enrichen the experience of being an Aabriist, and to help each other.  Everyone 
+Second:   We practice *Discussion within the Scope of the Central Tenets*. to enrichen the experience of being an Aabriist, and to help each other.  Everyone 
 can contribute and everyone can choose their own wisdom from among the discussions.
 
 ## Discussions

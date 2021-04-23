@@ -19,6 +19,6 @@ If you are a person who does this in the name of your religion, I suggest at the
 ### Abuse of Moral Authority
 If you ever find yourself being encouraged, in the name of religion, to accept something as moral that you believe is not moral, or to accept something as immoral that you believe is moral, then you are being subject to abuse of moral authority.
 
-One of the worst things a religion can do is remove moral agency from people.  This is why morality and the definition of good and evil is not in the central tenants of Aabriism.  By removing moral authority from people, you create situations in which the most horrible things imaginable happen.  This is literally the excuse used during the Nuremberg trials - "I was just doing my job".  This is literally the excuse for the cannabilism of the crusaders.  
+One of the worst things a religion can do is remove moral agency from people.  This is why morality and the definition of good and evil is not in the central tenets of Aabriism.  By removing moral authority from people, you create situations in which the most horrible things imaginable happen.  This is literally the excuse used during the Nuremberg trials - "I was just doing my job".  This is literally the excuse for the cannabilism of the crusaders.  
 
 The only way to be moral is to reject all moral authorities and to take responsibility for your own morality.

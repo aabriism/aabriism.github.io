@@ -1,6 +1,6 @@
 # God
 
-The central tenants make no mention of God for a reason.  Aabriism is fundamentally atheist: a-theist.  
+The central tenets make no mention of God for a reason.  Aabriism is fundamentally atheist: a-theist.  
 This does not mean Aabriism opposes god, it means that god is such a poorly defined and personally variable concept
 that it has little utility for our religion.
 
