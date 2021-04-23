@@ -31,6 +31,10 @@ can contribute and everyone can choose their own wisdom from among the discussio
 
 ## Discussions
 The discussions are ways of extending Aabriism, opening up questions, answering some, and introducing new practices.  They are not canon for the religion, but hopefully they are useful and participating in creating them is enjoyable.
+* [Iconography](iconography/index.html)
+* [Meaning in your Life](philosophy/meaning.html)
+* [Holidays](holidays/index.html)
+* [Observances](practices/index.html)
 
 ## Why?
 After years of thinking about this and then trying to live by it, myself and my sons are only adherents I know.  My sons have told their friends about it and they have requested more information.  Also, my sons have been in some challenging academic circumstances in which the power dynamic of a student-teacher relationship was opposing their desire to speak freely about religion.  I have created these pages (so far, only one page, but will hopefully grow) to assist my sons and to entertain their friends with the dottiness of a sincere old man.
