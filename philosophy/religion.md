@@ -2,7 +2,7 @@
 
 Religion across cultures and through time is so broad that it cannot be spoken of easily in a single page.
 
-So let me instead say this about *some* people's practice of *some* religions.  **If people in your religion do not behave like this, then it does not apply to you.  But if you share a religion with somebody who does does behave like this, perhaps you can help make it better.**
+So let me instead say this about *some* people's practice of *some* religions.  **If people in your religion do not behave like this, then it does not apply to you.  But if you share a religion with somebody who does behave like this, perhaps you can help make it better.**
 
 If you ever find yourself being pressured to believe a religion because (they say) "your life has no meaning without religion",
 you should know that they are wrong.  If you are a child and an adult is saying this to you, you should know that they are abusing you, and that
