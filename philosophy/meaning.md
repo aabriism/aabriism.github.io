@@ -12,5 +12,5 @@ Now take it to the next level.  If you can start to believe this about you, then
 This is where we find meaning:  in each other; in realizing that each other matters; in realizing that you matter.
 
 
-If you want to have a full heart filled with meaning and accomplishment, look to helping others and your self.  Make things better.
+If you want to have a heart filled with meaning and accomplishment, look to helping others and your self.  Make things better.
 
