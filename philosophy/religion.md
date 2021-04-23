@@ -1,8 +1,8 @@
 # Religion
 
-Relgion through current cultures and through time is so broad that it cannot be spoken of easily in a single page.
+Relgion across cultures and through time is so broad that it cannot be spoken of easily in a single page.
 
-So let me instead say this about *some* relgions.
+So let me instead say this about *some* relgions.  If your religion does not behave like this, then it does not apply to you.
 
 If you ever find yourself being pressured to beleive a relgion because (they say) "your life has no meaning without relgion",
 you should know that they are wrong.  If you are a child and an adult is saying this to you, you should know that they are abusing you, and that
