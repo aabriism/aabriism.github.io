@@ -15,7 +15,7 @@ It is a belief that takes a bit of work to understand.  What is *it*?  What is *
 It is applied in different ways in different circumstances.  Most importantly, it is something that I hope to believe always - even in the face of contradictory evidence.  I hope that even when it appears most bleak, I can hold this belief and find a creative way to answer these questions - find a way to make something, in some small way, better.
 
 ### Central Values
-There are two central values in Aabriism, summed up in the observation: "we are Animals Attempting to Behave RatIonally".  Aabriists recognize and value these two sides to people:  
+There are two central values in Aabriism, summed up in the observation: "we are **A**nimals **A**ttempting to **B**ehave **R**at**I**onally".  Aabriists recognize and value these two sides to people:  
 * We are animals. 
   * We are irrational, emotional, complex, beings.
 * We attempt to be rational
