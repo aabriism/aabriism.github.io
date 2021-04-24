@@ -1,6 +1,6 @@
 # Welcome to Aabriism
 
-Aabriism (pronounced Abri - ism) is a religion for atheists created by an atheist.  As such, it has no concept of a god or gods.  It is not unique in this as there are other religions that have no need for gods.  It is not special and no-one will care if you just ignore it, but if it resonates with you, fork the repo and add discussions.  (Someday I'll figure out a model for contribution that doesn't require forking.)
+Aabriism (pronounced *uh-**bree**-ism*) is a religion for atheists created by an atheist.  As such, it has no concept of a god or gods.  It is not unique in this as there are other religions that have no need for gods.  It is not special and no-one will care if you just ignore it, but if it resonates with you, fork the repo and add discussions.  (Someday I'll figure out a model for contribution that doesn't require forking.)
 
 ## Central Tenets
 The Central Belief, Central Values, and Central Practices are Central Tenets common to all forms of Aabriism. 
