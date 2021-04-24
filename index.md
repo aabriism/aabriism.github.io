@@ -26,7 +26,7 @@ There are two central values in Aabriism, summed up in the observation: "we are 
 ### Central Practices
 There are two central practices in Aabriism.
 
-First:   **We practice Discussion within the Scope of the Central Tenets**. 
+First:   **We practice Discussion within the scope of the Central Tenets**. 
 
 To enrichen the experience of being an Aabriist, and to help each other.  Everyone can contribute and everyone can choose their own wisdom from among the discussions.
 
