@@ -11,9 +11,10 @@ This image, if it is ever created would show a number of things:
 
 For now, I offer an image of the Abri Cro-Magnon
 
+
 ![Abri de Cro-Magnon - Les Eyzies de Tayac - 2009092](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c9/Abri_de_Cro-Magnon_-_Les_Eyzies_de_Tayac_-_20090925.jpg/512px-Abri_de_Cro-Magnon_-_Les_Eyzies_de_Tayac_-_20090925.jpg "Abri de Cro-Magnon - Les Eyzies de Tayac - 20090925") 
 
-[Sémhur, CC BY-SA 3.0 &lt;https://creativecommons.org/licenses/by-sa/3.0&gt;, via Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Abri_de_Cro-Magnon_-_Les_Eyzies_de_Tayac_-_20090925.jpg)
+[Abri de Cro-Magnon - Les Eyzies de Tayac - 2009092. Sémhur via Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Abri_de_Cro-Magnon_-_Les_Eyzies_de_Tayac_-_20090925.jpg)
 
 
 ## Website as Iconography
