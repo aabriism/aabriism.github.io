@@ -26,13 +26,13 @@ There are two central values in Aabriism, summed up in the observation: "we are 
 ### Central Practices
 There are two central practices in Aabriism.
 
-First:   We practice *Discussion within the Scope of the Central Tenets*. 
+First:   **We practice Discussion within the Scope of the Central Tenets**. 
 
 To enrichen the experience of being an Aabriist, and to help each other.  Everyone can contribute and everyone can choose their own wisdom from among the discussions.
 
-Second: *Don't give money to anybody who claims to be collecting it on behalf of Aabriism.*
+Second: **We don't give money to anybody who claims to be collecting it on behalf of Aabriism.**
 
-We've seen this too many times with religions.  Just don't do it.  If an aabriist group wishes to promote a particular project to "make something better", then they may request donations for that project, and if you are considering giving, you must decide based purely upon the merits of the project.  You should never, ever, give money to somebody who claims to be a representative of Aabrism for need it for the good of Aabriism.
+We've seen this too many times with religions.  Just don't do it.  If an aabriist group wishes to promote a particular project to "make something better", then they may request donations for that project, and if you are considering giving, you must decide based purely upon the merits of the project.  You should never, ever, give money to somebody who claims to be a representative of Aabrism or need it for the good of Aabriism.
 
 
 ## Discussions
