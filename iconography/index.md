@@ -6,8 +6,8 @@ The one thing I can see quite clearly in my mind is a picture.  It is a night sc
 
 This image, if it is ever created would show a number of things:  
 * Like the natural abri, Aabriism offers some shelter but requires you to do a bit of work to give yourself complete shelter
-* The people are discussing.  This is a key element - on of the central practices.
-* The people are using fire and drinking out of cups in the cold night - they are having fun.  They made the night a little better.
+* The people are discussing.  (One of the central practices)
+* The people are using fire and drinking out of cups in the cold night - they are having fun.  (They made the night a little better.)
 
 For now, I offer an image of the Abri Cro-Magnon
 
