@@ -28,7 +28,7 @@ The only way to be moral is to reject all moral authorities and to take responsi
 
 Aabriism is itself a religion and its Central Belief encourages moral agency.  Its first discussion encourages everyone to believe their life has meaning.
 
-Some atheists may balk at having a religion because word "religion" has been so strongly associated with horrible actions and nonsensical thoughts promoted in the name of religion.  Yet Aabriism is a religion.  Perhaps in some small way this could help soften the view towards religion and separate  criticism of religion from  criticism of the actions taken by a church or it's adherents.
+Some atheists may balk at having a religion because they have associated the word "religion" with horrible actions and nonsensical thoughts.  Yet Aabriism is a religion.  Perhaps we should separate criticism of religion from  criticism of the actions taken by a church or it's adherents.
 
 
 #### ------
