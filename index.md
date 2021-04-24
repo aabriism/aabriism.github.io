@@ -53,3 +53,4 @@ What began as an exercise in understanding faith became, to my surprise, a found
 
 After years of thinking about this and then trying to live by it, I am the only adherent I know.  My sons toy with it in varying degrees, but I don't think they would be comfortable saying "I am an Aabriist" partly because it is just a weird thing to do - to have your own religion.  Yet they have had many discussions with their friends (sometimes in an academic lecture or class setting) about concepts in these pages, and about Aabriism.  In the end, I have created these pages for myself, for my sons, and to entertain their friends with the dottiness of a sincere old man.
 
+

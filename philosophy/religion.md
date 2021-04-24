@@ -30,3 +30,6 @@ Aabriism is itself a religion and its Central Belief encourages moral agency.  I
 
 Some atheists may balk at having a religion because word "religion" has been so strongly associated with horrible actions and nonsensical thoughts promoted in the name of religion.  Yet Aabriism is a religion.  Perhaps in some small way this could help soften the view towards religion and separate  criticism of religion from  criticism of the actions taken by a church or it's adherents.
 
+
+#### ------
+[(back to main page)](../index.html)
