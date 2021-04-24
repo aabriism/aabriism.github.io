@@ -1,6 +1,6 @@
 # Iconography and Music
 
-One of the most lovely things about religion is that the community shares icongraphy and music.  I hope that one day, if there are any followers of Aabriism, that we have some.
+One of the most lovely things about religion is that the community shares icongraphy and music.  I hope that one day we have some.
 
 The one thing I can see quite clearly in my mind is a picture.  It is a night scene.  There is a large abri (an angled stone cliff face in this case), with a shelter built up next to it.  There is a fire in front of the shelter and people sitting around it smiling, laughing, discussing, and drinking something warm out of cups.
 
@@ -15,3 +15,6 @@ For now, I offer an image of the Abri Cro-Magnon
 
 [Sémhur, CC BY-SA 3.0 &lt;https://creativecommons.org/licenses/by-sa/3.0&gt;, via Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Abri_de_Cro-Magnon_-_Les_Eyzies_de_Tayac_-_20090925.jpg)
 
+
+## Website as Iconography
+As a side note, my wife tells me I should make the website a real site - not just a collection of markdown.  I think she just wants it to look "professional" as if that will give it more of a chance to be accepted.   From a marketing point of view she is probably right.  And of course, we all like pretty things, so perhaps one day I will "pretty up" the content, but I doubt that this thing will ever have followers.  I would one day like to get legal recognition as a religion, though, as it would somehow be validating.
