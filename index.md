@@ -28,7 +28,7 @@ There are two central practices in Aabriism.
 
 First:   **We practice Discussion within the scope of the Central Tenets**. 
 
-To enrichen the experience of being an Aabriist, and to help each other.  Everyone can contribute and everyone can choose their own wisdom from among the discussions.
+To enrichen the experience of being an Aabriist, and to help each other, everyone can contribute and everyone can choose their own wisdom from among the discussions.
 
 Second: **We don't give money to anybody who claims to be collecting it on behalf of Aabriism.**
 
@@ -49,7 +49,7 @@ The discussions are ways of extending Aabriism, opening up questions, answering 
 * [Discussions.10.Making It Better](practices/makingitbetter.html)
 
 ## Why?
-As an atheist who wanted to better understand belief, I asked my self "is there anything I would hope to believe even in the face of contradictory evidence?".  
+As an atheist who wanted to better understand belief, I asked myself "is there anything I would hope to believe even in the face of contradictory evidence?".  
 What began as an exercise in understanding faith became, to my surprise, a foundational belief.
 
 After years of thinking about this and then trying to live by it, I am the only adherent I know.  My sons toy with it in varying degrees, but I don't think they would be comfortable saying "I am an Aabriist" partly because it is just a weird thing to do - to have your own religion.  Yet they have had many discussions with their friends (sometimes in an academic lecture or class setting) about concepts in these pages, and about Aabriism.  In the end, I have created these pages for myself, for my sons, and to entertain their friends with the dottiness of a sincere old man.
