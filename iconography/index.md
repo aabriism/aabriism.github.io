@@ -18,7 +18,7 @@ For now, I offer an image of the Abri Cro-Magnon
 
 
 ## Website as Iconography
-As a side note, my wife tells me I should make the website a real site - not just a collection of markdown.  I think she just wants it to look "professional" as if that will give it more of a chance to be accepted.   From a marketing point of view she is probably right.  And of course, we all like pretty things, so perhaps one day I will "pretty up" the content, but I doubt that this thing will ever have followers.  I would one day like to get legal recognition as a religion, though, as it would somehow be validating.
+As a side note, my wife tells me I should make the website a real site - not just a collection of markdown.  I think she just wants it to look "professional" as if that will give it more of a chance to be accepted.   From a marketing point of view she is probably right.  And of course, we all like pretty things, so perhaps one day I will "pretty up" the content.
 
 
 
