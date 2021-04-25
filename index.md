@@ -12,7 +12,7 @@ The Central Belief, Central Values, and Central Practices are Central Tenets com
 That is the central belief of Aabriism.  **I can make it better.**  
 
 It is a belief that takes a bit of work to understand.  What is *it*?  What is *better*?  What can *I do*? 
-It is applied in different ways in different circumstances.  Most importantly, it is something that I hope to believe always - even in the face of contradictory evidence.  I hope that even when it appears most bleak, I can hold this belief and find a creative way to answer these questions - find a way to make something, in some small way, better.
+It is applied in different ways in different circumstances. 
 
 ### Central Values
 There are two central values in Aabriism, summed up in the observation: "we are **A**nimals **A**ttempting to **B**ehave **R**at**I**onally".  Aabriists recognize and value these two sides to people:  
@@ -46,6 +46,7 @@ The discussions are ways of extending Aabriism, opening up questions, answering 
 * [Discussions.7.Observances](practices/index.html)
 * [Discussions.8.Morality](philosophy/morality.html)
 * [Discussions.9.Pascal's Wager](philosophy/pascalswager.md)
+* [Discussions.10.MakingItBetter(practices/makingitbetter.md)
 
 ## Why?
 As an atheist who wanted to better understand belief, I asked my self "is there anything I would hope to believe even in the face of contradictory evidence?".  
