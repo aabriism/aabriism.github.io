@@ -5,8 +5,7 @@
 It is that simple.  You matter and your life has meaning.
 
 Once you start to feel that, once you start to believe it, you may back-slide, you may question "but *why* do I matter"?
-
-Now take it to the next level.  If you can start to believe this about you, then use your empathy.  Use Abriism's core values - value people's emotional and rational sides.  Look at others and realize "they matter".  Take it one step further - realize that they should be thinking about you that *you matter*.
+If that happens, take it to the next level.  If you can start to believe this about you, then use your empathy.  Use Abriism's core values - value people's emotional and rational sides.  Look at others and realize "they matter".  Take it one step further - realize that they should be thinking about you that *you matter*.
 
 
 This is where we find meaning:  in each other; in realizing that each other matters; in realizing that you matter.
