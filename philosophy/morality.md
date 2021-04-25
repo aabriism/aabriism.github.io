@@ -6,7 +6,7 @@ The Central Belief enshrines this by asking the believer to engage with and defi
 
 Being a moral agent and understanding the origin of morality is not hard.  We all have a sense of fairness, of right, and of wrong.  Those of us raised with love have maintained it.
 
-It comes from a sense of personal pain and joy, a sense of empathy for others, and the application of rationality to apply it impartially and consistently.
+It comes from a sense of personal pain and joy, a sense of empathy for others, and the rational application of it impartially and consistently.
 
 
 
