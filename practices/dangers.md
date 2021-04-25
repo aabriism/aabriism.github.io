@@ -5,7 +5,7 @@ Here are the dangers that I can see.
 ## It's not the Secret
 No, you can't do whatever you want - you can't arbitrarily decide that "it" is war and "make better" is "end all wars forever".  Get a grip.  
 
-Also, don't let people who hear about Aabriism construct this strawman against it.  Tell that it is about agency not magic.  If they persist them them to f right off until they grow up and then keep fing right off.
+Also, don't let people who hear about Aabriism construct this strawman against it.  Tell them that it is about agency not magic.  If they persist, tell them to f right off until they grow up and then keep f'ing right off.
 
 ## It's not an Obligation
 Don't believe you *have to* make everything better.  Go easy on yourself.  
