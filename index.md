@@ -45,8 +45,8 @@ The discussions are ways of extending Aabriism, opening up questions, answering 
 * [Discussions.6.Holidays](practices/index.html#holidays)
 * [Discussions.7.Observances](practices/index.html)
 * [Discussions.8.Morality](philosophy/morality.html)
-* [Discussions.9.Pascal's Wager](philosophy/pascalswager.md)
-* [Discussions.10.Making It Better](practices/makingitbetter.md)
+* [Discussions.9.Pascal's Wager](philosophy/pascalswager.html)
+* [Discussions.10.Making It Better](practices/makingitbetter.html)
 
 ## Why?
 As an atheist who wanted to better understand belief, I asked my self "is there anything I would hope to believe even in the face of contradictory evidence?".  
