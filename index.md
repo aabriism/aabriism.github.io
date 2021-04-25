@@ -19,7 +19,7 @@ There are two central values in Aabriism, summed up in the observation: "we are 
 * We are animals. 
   * We are irrational, emotional, complex, beings.
 * We attempt to be rational
-  * Some of our greatest achievments have arisen from rationality - from an attempt to grow beyond our animal limitations and to apply logic, mathematics, scientific rigor, precedent and balance.
+  * Some of our greatest achievments have arisen from rationality.  We attempt to grow beyond our animal limitations by applying logic, mathematics, scientific rigor, precedent, and conscious empathy.
 
 **We value the emotional and the rational in people.**  We do not sacrifice one for the other.  We do not require people to be rational to be atheists, but we do not accept all forms of irrationality as desirable within an individual or a society.
 
