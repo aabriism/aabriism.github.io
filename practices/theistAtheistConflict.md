@@ -1,6 +1,6 @@
 # Conflict Between Theists and Atheists
 
-I would like to have a truly atheist religion, but conflicts with theists often arise and must be addressed.
+I would like to have a truly atheist religion in which we don't even discuss theists or theism, but conflicts with theists often arise and must be addressed.
 
 Sometimes the conflicts are started by atheists, sometimes they are started by theists.  Here are some thoughts.
 
@@ -25,8 +25,8 @@ and to keep it in the context of oppression.   Absolutely we must challenge dest
 ## The Need for Truth
 
 Without a common understanding of truth and reality, we are lost.  Justice is impossible.  Rational decisions making is impossible.  There is 
-a deep epistemological tangent I could take here, but briefly:  truth is real, truth is approximate, and some things are more true than others.
+a deep epistemological tangent I could take here, but briefly:  **truth is real, truth is approximate, and some things are more true than others**.
 
 We cannot as a society let slip our understanding of truth.  People of faith must be included in this.  They, just like the rest of us, must understand the nature of truth
-for our society to prosper.  We cannot let habits like "I believe it so it is true" promulgate.  However, atheists attacking theists on this doesn't help change anybody's mind.
+for our society to prosper.  We cannot let habits like "I believe it, so it is true" promulgate.  However, atheists attacking theists doesn't help change anybody's mind.
 We need to help the theist support the contradiction - to believe something and at the same time acknowledge it is not true.   
