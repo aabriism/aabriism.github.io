@@ -2,11 +2,11 @@
 
 I would like to have a truly atheist religion, but conflicts with theists often arise and must be addressed.
 
-Sometimes the conflicts are started by atheists, sometimes they are started by theists.  Here are some causes.
+Sometimes the conflicts are started by atheists, sometimes they are started by theists.  Here are some thoughts.
 
 ## Strawmen
 
-Either side is guilty of creating strawmen of the other side.  Just stop it.  If you observe something the other side does, absolutely 
+Both sides are guilty of creating strawmen of the other side.  Just stop it.  If you observe something the other side does, absolutely 
 comment on it, but be careful of generalizing too much or creating a strawman that only inflames.
 
 If somebody does create a strawman, absolutely point it out - but try to educate and assume a kind audience and let them prove otherwise.
